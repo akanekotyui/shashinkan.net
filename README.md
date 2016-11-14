@@ -1,0 +1,1 @@
+# shashinkan.net
